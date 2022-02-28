@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @YUTA7777777
+- 👀 I’m interested in robot in space
+- 🌱 I’m currently learning mathmatics and physics
